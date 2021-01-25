@@ -81,28 +81,28 @@ Communication is everything: Before you get physically intimate with a partner, 
 All sexual activity must start with consent and should include ongoing check-ins with your partner. Verbal communication can help you and your partner ensure that you respect each other’s boundaries. Consent can be withdrawn at any time, and sex is never owed to anyone. Do not proceed if your partner seems uncomfortable or unsure, or if your partner is unable to consent due to the effects of drugs or alcohol. 
 Resources for Help, Support, or Advice
 Remember — even if you follow these tips, no method of risk reduction is perfect. If you have a negative experience, please know that it is not your fault and help is available. Report any incidents to our helping email teamvibeus@gmail.com and consider reaching out to one of the resources below. If you feel you are in immediate danger or need emergency assistance, call 911 (U.S. or Canada) or your local law enforcement agency.
-RAINN’s National Sexual Assault Hotline
+## RAINN’s National Sexual Assault Hotline
 1-800-656-HOPE (4673) | online.rainn.org | www.rainn.org
-Planned Parenthood
+## Planned Parenthood
 1-800-230-7526 | www.plannedparenthood.org
-National Domestic Violence Hotline
+## National Domestic Violence Hotline
 1-800-799-SAFE (7233) or 1-800-787-3224 | www.thehotline.org
-National Human Trafficking Hotline
+## National Human Trafficking Hotline
 1-888-373-7888 or text 233733 | www.humantraffickinghotline.org
-National Sexual Violence Resource Center
+## National Sexual Violence Resource Center
 1-877-739-3895 | www.nsvrc.org
-National Center for Missing & Exploited Children
+## National Center for Missing & Exploited Children
 1-800-THE-LOST (843-5678) | www.cybertipline.com
-Cyber Civil Rights Initiative
+## Cyber Civil Rights Initiative
 1-844-878-2274 | www.cybercivilrights.org
-VictimConnect - Crime Victim Resource Center
+## VictimConnect - Crime Victim Resource Center
 1-855-4VICTIM (855-484-2846) | www.victimconnect.org
-FBI Internet Crime Complaint Center
+## FBI Internet Crime Complaint Center
 www.ic3.gov
-LGBT National Help Center
+## LGBT National Help Center
 1-888-843-4564 | www.glbtnationalhelpcenter.org
-Trans Lifeline
+## Trans Lifeline
 1-877-565-8860 (US) or 1-877-330-6366 (CA) | www.translifeline.org
-If you are outside the US:
+## If you are outside the US:
 •	https://mtch.com/safety-details-international for additional resources in many of the countries where we operate. 
 •	https://ilga.org/about-us for information regarding international sexual orientation laws from the International Lesbian, Gay, Bisexual, Trans and Intersex Association (ILGA).
