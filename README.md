@@ -26,3 +26,4 @@ Vibeus had a once try maintaining your profile and you can post your images on y
 feed panel for giving a better look at your Vibeus profile.
 
 [Our Privacy Policy](https://github.com/vibeus-con/Vibeus/blob/main/Privacy.md)
+
