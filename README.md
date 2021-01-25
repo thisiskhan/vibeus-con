@@ -1,7 +1,7 @@
 # vibeus-con
 ## Vibeus Description 
-```Share your photos and fun moments with friends you love
-
+```
+Share your photos and fun moments with friends you love
 Vibeus try to bring you close to people all around the world.
 Connect with people in a short time without any subscriptions🤗🤗.
 Vibeus has tons of features such as Exploring people around you, 
