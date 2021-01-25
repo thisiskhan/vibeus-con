@@ -33,7 +33,7 @@ Meeting new people is exciting, but you should always be cautious when interacti
 Online Safety
 •	Never Send Money or Share Financial Information
 Never send money, especially over wire transfer, even if the person claims to be in an emergency. Wiring money is like sending cash — it’s nearly impossible to reverse the transaction or trace where the money went. Never share information that could be used to access your financial accounts. If another user asks you for money, report it to us immediately.
-For tips on avoiding romance scams, check out some advice from the U.S Federal Trade Commission  https://www.consumer.ftc.gov/articles/what-you-need-know-about-romance-scams or in the video. https://www.youtube.com/watch?v=jlxWxH0mgU8&feature=emb_logo 
+For tips on avoiding romance scams, check out some advice from the U.S Federal Trade Commission [on the FTC website](https://www.consumer.ftc.gov/articles/what-you-need-know-about-romance-scams) or in the [video](https://www.youtube.com/watch?v=jlxWxH0mgU8&feature=emb_logo) 
 •	Protect Your Personal Information
 Never share personal information, such as your social security number, home or work address, or details about your daily routine (e.g., that you go to a certain gym every Monday) with people you don’t know. If you are a parent, limit the information that you share about your children on your profile and in early communications. Avoid sharing details such as your children’s names, where they go to school, or their ages or genders.
 •	Stay on the Platform
