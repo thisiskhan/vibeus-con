@@ -14,7 +14,8 @@ You can activate VibeusBoost Mode to catch your liked one faster than ever.
 
 # Likes and Matches
 If someone likes you or you like someone you or that person will be visible on the like panel
-and once again of you approve they're like you both will be visible on the match panel, now its time to start the conversation
+and once again of you approve they're like you both will be visible on the match panel, now its time to start the 
+conversation.
 
 # Messaging your friend once you are matched
 Start a fun conversation about what you see on fees
