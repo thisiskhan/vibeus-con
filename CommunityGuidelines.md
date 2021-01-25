@@ -5,7 +5,7 @@ Here's the thing. We want you to think about this one rule: treat online interac
 •	When uploading photos, consider if the same pose or outfit would be appropriate in public. 
 •	When creating a profile, consider if you'd feel comfortable having a family member or friend read it. 
 Vibeus is not a place where people want to hear about your sexual fantasies out of the blue, or where you can be mean to someone with no repercussions. Treat it as a place where you can talk to other humans about things that matter to you both, and remember that the best way to make a meaningful connection with someone is to treat them well.
-Below are our community guidelines and moderation standards. If you see anyone who violates these guidelines, [please report them right away](teamvibes@gmail.com) 
+Below are our community guidelines and moderation standards. If you see anyone who violates these guidelines, please report them right away teamvibeus@gmail.com
 In this article:
 Harassment
 If you wouldn’t say it to someone you just met in person, you shouldn’t be saying it online. Messages should be respectful, appropriate, honest, and kind. We don't tolerate "negging" (insulting statements disguised as "flirting") or other rude behaviour. This expectation also includes interactions with Vibeus staff. People found to be sending harassing messages will be banned.
