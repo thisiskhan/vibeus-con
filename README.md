@@ -25,5 +25,5 @@ Share images you're clicked with your friends and family.
 Vibeus had a once try maintaining your profile and you can post your images on your Vibeus 
 feed panel for giving a better look at your Vibeus profile.
 
-[Our Privacy Policy](https://github.com/vibeus-con/Vibeus/blob/main/Privacy.md)
+[Our Privacy Policy](https://github.com/vibeus-con/vibeusprivacy/blob/main/Privacy.md)
 
