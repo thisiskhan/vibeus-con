@@ -69,10 +69,10 @@ Know where your drink comes from and know where it is at all times — only acce
 It’s okay to end the date early if you’re feeling uncomfortable. In fact, it’s encouraged. And if your instincts are telling you something is off or you feel unsafe, ask the bartender or server for help.
 •	LGBTQ+ Travel
 Be careful while traveling. We recognize and believe in the importance of being inclusive of all gender identities and sexual orientations, but the reality is this: nowhere in the world is without potential risk, and some countries have specific laws that target LGBTQ+ people. Check out the laws around you when you travel to a new place and research what types of legal protection, if any, are available to you based on sexual orientation. In the event that you’re in unsafe territory, we suggest disabling your Vibeus account or going Incognito. It’s important to exercise extra caution if you choose to connect with new people in these countries - as some law enforcement have been known to use dating apps as tools for potential entrapment. Some countries have also recently introduced laws that criminalize communications between individuals on same-sex dating applications or websites and even aggravate penalties if that communication leads to sexual encounters.
-Visit https://ilga.org/maps-sexual-orientation-laws to see the latest sexual orientation laws by country, and consider donating to support their research. Source: ILGA World, Updated March 2019
+Visit [here](https://ilga.org/maps-sexual-orientation-laws) to see the latest sexual orientation laws by country, and consider donating to support their research. Source: ILGA World, Updated March 2019
 Sexual Health & Consent
 •	Protect Yourself
-When used correctly and consistently, condoms can significantly reduce the risk of contracting and passing on STI’s like HIV. But, be aware of STIs like herpes or HPV that can be passed on through skin-to-skin contact. The risk of contracting some STIs can be reduced through https://www.ashasexualhealth.org/vaccines/ .
+When used correctly and consistently, condoms can significantly reduce the risk of contracting and passing on STI’s like HIV. But, be aware of STIs like herpes or HPV that can be passed on through skin-to-skin contact. The risk of contracting some STIs can be reduced through [here](https://www.ashasexualhealth.org/vaccines/) .
 •	Know Your Status
 Not all STIs show symptoms, and you don’t want to be in the dark about your status. Stay on top of your health and prevent the spread of STIs by getting tested regularly.
 •	Talk About It
