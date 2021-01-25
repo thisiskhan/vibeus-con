@@ -76,7 +76,7 @@ When used correctly and consistently, condoms can significantly reduce the risk 
 •	Know Your Status
 Not all STIs show symptoms, and you don’t want to be in the dark about your status. Stay on top of your health and prevent the spread of STIs by getting tested regularly.
 •	Talk About It
-Communication is everything: Before you get physically intimate with a partner, talk about sexual health and STI testing. And be aware — in some places, it’s actually a crime to knowingly pass on an STI. Need help starting the conversation? Here are some tips https://www.plannedparenthood.org/learn/stds-hiv-safer-sex/get-tested/how-do-i-talk-my-partner-about-std-testing  
+Communication is everything: Before you get physically intimate with a partner, talk about sexual health and STI testing. And be aware — in some places, it’s actually a crime to knowingly pass on an STI. Need help starting the conversation? [Here are some tips](https://www.plannedparenthood.org/learn/stds-hiv-safer-sex/get-tested/how-do-i-talk-my-partner-about-std-testing)  
 •	Consent
 All sexual activity must start with consent and should include ongoing check-ins with your partner. Verbal communication can help you and your partner ensure that you respect each other’s boundaries. Consent can be withdrawn at any time, and sex is never owed to anyone. Do not proceed if your partner seems uncomfortable or unsure, or if your partner is unable to consent due to the effects of drugs or alcohol. 
 Resources for Help, Support, or Advice
