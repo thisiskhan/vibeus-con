@@ -104,5 +104,4 @@ www.ic3.gov
 ## Trans Lifeline
 1-877-565-8860 (US) or 1-877-330-6366 (CA) | www.translifeline.org
 ## If you are outside the US:
-•	https://mtch.com/safety-details-international for additional resources in many of the countries where we operate. 
 •	https://ilga.org/about-us for information regarding international sexual orientation laws from the International Lesbian, Gay, Bisexual, Trans and Intersex Association (ILGA).
